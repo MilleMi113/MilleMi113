@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MilleMi113
-- 👀 I’m interested in ...things.
-- 🌱 I’m currently not learning ukulele
+- 👀 I’m interested in too many things.
+- 🌱 I’m currently not learning ukulele or knitting
 - 💞️ I’m looking to collaborate on toothpaste
 - 📫 How to reach me: not by phone!
 
